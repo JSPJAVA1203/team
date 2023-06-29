@@ -6,6 +6,25 @@
 
 // 06.27 07:57 수정
 // 06.27 08:04 수정
+// 06.28 17:11 수정
+///sdfdsfdsfds
+//sdfsdfsdfsdfdsf
+sdfsdfsdfffffffffffffffff
+eeeeeeeeeeeeeee
+ddddddddddddddddd
+eeeeeeeeeeeeeee
+ddddddddddddddddd
+eeeeeeeeeeeeeee
+ddddddddddddddddd
+eeeeeeeeeeeeeee
+ddddddddddddddddd
+eeeeeeeeeeeeeee
+ddddddddddddddddd
+
+////jkyfgkgkjhjkhkjhkjlhkkkkkkkkkkkkkkkkkkkkkk
+jghkghkghkghkghkghkghkjjgkhgjkhgkjgkj
+ugkjjjjjjjjjjjjjjjjjjjjjjjjjjj
+
 
 ////jkyfgkgkjhjkhkjhkjlhkkkkkkkkkkkkkkkkkkkkkk
 jghkghkghkghkghkghkghkjjgkhgjkhgkjgkj
