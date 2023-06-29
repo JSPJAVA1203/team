@@ -32,3 +32,4 @@ ugkjjjjjjjjjjjjjjjjjjjjjjjjjjj
 
 
 asdasdasd JYG
+트라이캐쳐스 화이팅 ^^
